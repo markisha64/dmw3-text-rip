@@ -1,0 +1,1 @@
+# dmw3-text-rip
